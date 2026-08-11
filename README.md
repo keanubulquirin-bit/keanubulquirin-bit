@@ -10,7 +10,7 @@
 
 ### 🚀 About Me
 
-🔭 &nbsp;I'm currently working on **Web Development**  
+🔭 &nbsp;I'm currently working on **Mahh selp**  
 🌱 &nbsp;I'm currently learning **Web Dev**  
 😄 &nbsp;Pronouns: **helicopter**  
 ⚡ &nbsp;Fun fact: **Kung kaya ng iba, magaling sila**
